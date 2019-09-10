@@ -18,3 +18,12 @@ Munich (/ˈmjuːnɪk/ MEW-nik; German: München [ˈmʏnçn̩] (About this soundl
 
 * Spokane
 Spokane (/ˌspoʊˈkæn/ (About this soundlisten) spoh-KAN)[8] is a city in Spokane County in the state of Washington in the northwestern United States.
+
+* Kassel
+Kassel (German pronunciation: [ˈkasl̩] (About this soundlisten); spelled Cassel until 1928)
+is a city located in the middle of Germany!
+
+* London
+London is the capital and largest city of England and the United Kingdom, with the
+largest municipal population in the European Union.
+Standing on the River Thames in the south-east of England.
