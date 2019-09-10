@@ -16,5 +16,8 @@ Prague (/prɑːɡ/; Czech: Praha [ˈpraɦa] (About this soundlisten), German: Pr
 * Munich
 Munich (/ˈmjuːnɪk/ MEW-nik; German: München [ˈmʏnçn̩] (About this soundlisten);[3] Austro-Bavarian: Minga [ˈmɪŋ(ː)ɐ] or more common Minna [ˈmɪna]; Latin: Monachium) is the capital and most populous city of Bavaria, the second most populous German federal state.
 
+* Roth
+is missing!
+
 * Spokane
 Spokane (/ˌspoʊˈkæn/ (About this soundlisten) spoh-KAN)[8] is a city in Spokane County in the state of Washington in the northwestern United States.
