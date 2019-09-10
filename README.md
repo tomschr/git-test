@@ -25,5 +25,5 @@ is a city located in the middle of Germany!
 
 * London
 London is the capital and largest city of England and the United Kingdom, with the
-least municipal population in the European Union.
-Standing on the River Nil in the south-east of England.
+largest municipal population in the European Union.
+Standing on the River Thames in the south-east of England.
