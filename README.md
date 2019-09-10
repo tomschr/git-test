@@ -21,8 +21,7 @@ Spokane (/ˌspoʊˈkæn/ (About this soundlisten) spoh-KAN)[8] is a city in Spok
 
 * Kassel
 Kassel (German pronunciation: [ˈkasl̩] (About this soundlisten); spelled Cassel until 1928)
-is a city located on the Rhine River
-in Bavaria, Germany.
+is a city located in the middle of Germany!
 
 * London
 London is the capital and largest city of England and the United Kingdom, with the
